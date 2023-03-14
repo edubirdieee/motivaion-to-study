@@ -1,1 +1,1 @@
-# motivaion-to-study
+When you have mountains of homework and studying ahead, getting started can seem like an impossible task. We’ll teach you how to get into the right frame of mind before you start studying and shake yourself out of a motivation slump. Read on to learn how to stop procrastinating on studying, focus even when you're tired, and get motivated to do your schoolwork!
